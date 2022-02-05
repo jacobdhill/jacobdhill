@@ -7,4 +7,4 @@
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... [Email](mailto:jacob.d.hill@outlook.com)
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I'm an avid guitarist.
+- ⚡ Fun fact: ... I'm an avid guitarist 🎸
